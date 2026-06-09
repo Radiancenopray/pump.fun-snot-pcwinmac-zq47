@@ -1,4 +1,4 @@
-# 
+# Elite pump.fun sniper bot fluxo de trabalho para Mac OS | Exclusivo pump.fun sniper bot fluxo de trabalho para PC Windows. Com controle de escorregamento e tratamento de reversão — otimizado para máximo desempeño en cada plataforma.
 
 
 
